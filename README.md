@@ -1,2 +1,2 @@
-# Minhas-qualifica-es
+# Minhas-qualificaões
 Meus diplomas/certificados 
